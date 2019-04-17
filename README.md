@@ -1,0 +1,1 @@
+# Disruptivne_tehnologije
